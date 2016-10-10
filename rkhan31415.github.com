@@ -1,2 +1,2 @@
-# WokThisWay
-https://sites.google.com/site/wokthiswayyy/
+www.sites.google.com/site/wokthiswayyy/
+sites.google.com/site/wokthiswayyy/
